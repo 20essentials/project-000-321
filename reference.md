@@ -1,3 +1,0 @@
-- **Reference ⬇️**
-  - [BLU-RAY DISC](https://logodix.com/logo/1077771.png)
-  - [YOUTUBE VIDEO INSPIRATION](https://youtu.be/5UifSNQeydI?si=msySSePkOB1d9MCs)
